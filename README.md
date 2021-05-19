@@ -1,1 +1,1 @@
-# i cloned this for some thing that i wana learn LAMO 
+## go back im nerd idk why i forked it LAMO !
